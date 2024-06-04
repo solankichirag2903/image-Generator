@@ -1,1 +1,1 @@
-![Alt Text]("C:\Users\solan\OneDrive\Documents\resume\image generated.png")
+![Alt Text]("https://ibb.co/WBjmMvC")
